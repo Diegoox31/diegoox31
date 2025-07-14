@@ -19,8 +19,8 @@ I’m motivated to work in IT environments where I can continue learning, solve 
 ## 📫 Contact
 
 - 🌍 Location: Spain  
-- 📧 Email: [your-email@example.com]  
-- 💼 LinkedIn: [Your LinkedIn profile]
+- 📧 Email: diegosnczz@gmail.com  
+- 💼 LinkedIn: (https://www.linkedin.com/in/diego-de-la-cruz-sanchez-29579a373?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ---
 
